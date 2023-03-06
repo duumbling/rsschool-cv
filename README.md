@@ -1,1 +1,1 @@
-# rsschool-cv
+https://duumbling.github.io/rsschool-cv
